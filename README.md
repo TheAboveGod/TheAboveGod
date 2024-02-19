@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @TheAboveGod
 - 🗿 I am Noob
-- 📫 Reach me pn telegram:-@Thynub
+- 📫 Reach me on telegram:-@ThyDazai
 - 
 
 <!---
